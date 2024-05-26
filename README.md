@@ -1,6 +1,6 @@
-　　![](https://64.media.tumblr.com/4be8af2714527430b0ca0453a0d40990/99a13730feb13918-18/s400x600/2be648b1e14baf58577d6661a32ba28d3a8db1a6.gifv)
+![](https://64.media.tumblr.com/4be8af2714527430b0ca0453a0d40990/99a13730feb13918-18/s400x600/2be648b1e14baf58577d6661a32ba28d3a8db1a6.gifv)
 
-　　scout irl & engi kin!!
+　　blu scout irl & engi kin !!
 
 　　C + H always welcome unless dni or with gf!!
 
@@ -10,7 +10,7 @@
 
 　　listening to 
 
-　　ill show you how to do this in a second and youre gonna put it where im writing this :3 
+　　[![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=314qe42uxwm4h2kxo4lllwhihlvu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=e65761&bar_color_cover=false)](https://spotify-github-profile.vercel.app/api/view?uid=314qe42uxwm4h2kxo4lllwhihlvu&redirect=true) 
 
 　　![](https://files.catbox.moe/s6vib2.gif) ![](https://files.catbox.moe/963c6p.png) ![](https://files.catbox.moe/obyqiw.gif) ![](https://files.catbox.moe/4zdsrg.png) ![](https://files.catbox.moe/dga7pq.gif)
 
