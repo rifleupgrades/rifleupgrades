@@ -6,7 +6,7 @@
 
 　　please interact with me i promise i dont bite!<33
   
-　　soldier kins and medic kins hihihi!!!!! waves hands!!!!!!!
+　　 accent pickups & n1 sniper lover
 
 　　listening to 
 
