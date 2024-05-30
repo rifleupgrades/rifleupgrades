@@ -6,7 +6,7 @@
 
 　　please interact with me i promise i dont bite!<33
   
-　　boston accent pickuper & n1 sniper lover
+　　soldier kins and medic kins hihihi!!!!! waves hands!!!!!!!
 
 　　listening to 
 
