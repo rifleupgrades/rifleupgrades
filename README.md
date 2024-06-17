@@ -2,7 +2,7 @@
 
 　　blu scout irl & engi kin !!
 
-　　C + H always welcome unless dni or with gf!!
+　　C + H always welcome unless dni
 
 　　please interact with me i promise i dont bite!<33
   
