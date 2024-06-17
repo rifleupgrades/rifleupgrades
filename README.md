@@ -6,7 +6,7 @@
 
 　　please interact with me i promise i dont bite!<33
   
-　　 accent pickups & n1 sniper lover
+　　 warninn!!! some of my stuff may be out of date! :3 
 
 　　listening to 
 
